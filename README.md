@@ -1,4 +1,4 @@
-# [Andreza Lira] <img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Mario_Hello_Big.gif" width="30px">
+# [Andreza Lira] <img src="https://i.redd.it/wqz09w5gffk71.gif" width="140px">
 
 Eu sou <strong>Andreza</strong>👨🏻‍💻 
 
